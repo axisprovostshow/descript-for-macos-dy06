@@ -1,4 +1,4 @@
-# 
+# Enhance Descript for macOS with automatic Descript for macOS Automation | chromatic-aberration-fix + text-animation, the #1 automation. Includes chromatic-aberration-fix and
 
 
 
